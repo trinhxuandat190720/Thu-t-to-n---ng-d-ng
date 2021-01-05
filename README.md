@@ -1,1 +1,1 @@
-# Thu-t-to-n---ng-d-ng
+thuat toan ung dung.
